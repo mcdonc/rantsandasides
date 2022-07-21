@@ -1,14 +1,18 @@
 Rants and Asides: YouTube Videos That I Love
 ============================================
 
-- If you saw my YouTube history, I would be cancelled.
+- I am partial to interviews, especially of quirky people.
+
+- Most of these videos are one-offs, found organically, not part of a series.
+
+- Apologies, I did not rewatch all of these to make this video, my descriptions
+  will be surface-level on some, but all are highly entertaining.
 
 - I omitted the music (which is at least 30% of my YouTube watching).
 
-- I am partial to interviews, especially of quirky people.
+- Don't consider a listing here an endorsement.
 
-- Don't consider a listing here my endorsement of the ideas of the ideas in the
-  video.
+- But if you saw my YouTube history, I would be cancelled.
 
 Videos
 ------
